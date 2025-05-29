@@ -1,7 +1,7 @@
-# ʕっ•ᴥ•ʔっ Ossie Bear
+# ʕっ•ᴥ•ʔっ Ossie Bear  모
 Oscar Collins
 
 🎓Etudiant Réseaux-Télécommunications a l'IUT d'Annecy USMB  
-📜[Portfolio / CV](http://srv-peda.iut-acy.local/collinso)  
-🟦[LinkedIn](linkedin.com/in/oscar-collins-196219246)  
-🟪[Instagram](instagram.com/ossiebearski)  
+*   📜[Portfolio / CV](http://srv-peda.iut-acy.local/collinso)  
+*   🟦[LinkedIn](linkedin.com/in/oscar-collins-196219246)  
+*   🟪[Instagram](instagram.com/ossiebearski)  
