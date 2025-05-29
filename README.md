@@ -1,4 +1,4 @@
-# ʕっ•ᴥ•ʔっ Ossie Bear  모
+# ʕっ•ᴥ•ʔっ Ossie Bear  
 Oscar Collins
 
 🎓Etudiant Réseaux-Télécommunications a l'IUT d'Annecy USMB  
