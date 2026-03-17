@@ -10,7 +10,7 @@
 ## About me
 - Oscar Collins
 - Etudiant Réseaux-Télécommunications a l'IUT d'Annecy USMB
-- 
+- #1 fan of [raphou du bus](https://github.com/7ShIkI3)
 - 
 
 </td>
